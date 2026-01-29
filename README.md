@@ -1,1 +1,0 @@
-# CS-IEEE-ZSB-26-Rookies
